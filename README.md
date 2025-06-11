@@ -1,1 +1,0 @@
-# multi-utility-self-care-app
